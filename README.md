@@ -26,3 +26,14 @@ Onshpae3D齒輪繪製：https://cad.onshape.com/documents/02b2e9dedbafe39dfba5c2
 
 Onshpae3D齒輪組合：https://cad.onshape.com/documents/02b2e9dedbafe39dfba5c28f/w/6fd2b81f13668d282e31ad7d/e/48d3ffbf4cdd0f80f3037bbd
 
+40323240
+
+cdw11 : http://bg11cdw11-40323240.rhcloud.com/static/blog/40323240-cdw11-bao-gao.html
+
+cdw13 : http://bg11cdw11-40323240.rhcloud.com/static/blog/40323240-cdw13-bao-gao.html
+
+cdw14 : http://bg11cdw11-40323240.rhcloud.com/static/blog/40323240-cdw14-bao-gao.html
+
+期末考Onshpae3D齒輪繪製: https://cad.onshape.com/documents/02b2e9dedbafe39dfba5c28f/w/6fd2b81f13668d282e31ad7d/e/860fccdd06a28a9a0feb33c3
+
+期末考Onshpae3D齒輪組合： https://cad.onshape.com/documents/02b2e9dedbafe39dfba5c28f/w/6fd2b81f13668d282e31ad7d/e/0c945ee998c60fcf6688bba0
